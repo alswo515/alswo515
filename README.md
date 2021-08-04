@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alswo515
 - 👀 I’m interested in ... excel , ai , photoshop
 - 🌱 I’m currently learning ... excel
-- 💞️ I’m looking to collaborate on ... thanks.
+- 💞️ I’m looking to collaborate on ... anythings
 - 📫 How to reach me ... alswo515@naver.com ... anytime ok
 
 <!---
